@@ -1,4 +1,5 @@
-<img width="10000000000000" height="10000" alt="tumblr_5f940666f3f11e67ba5d2be97e22548a_aec8b43" src="https://github.com/user-attachments/assets/9a1617d1-6856-4e76-950e-e61250b07570" />
+![Gti66Z-boAAeGCL](https://github.com/user-attachments/assets/68617ca1-d2c4-445e-8ec2-451887812490)
+
 
 
 hi there, im ten, u can also call me dess or brandon i dont really care. im open for nicknames though! im a minor
