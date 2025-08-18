@@ -1,4 +1,4 @@
-<img width="100000000" height="300" alt="tumblr_78e6e7ed00908893ecfb946d72a7a467_f231c50c_1280" src="https://github.com/user-attachments/assets/1539a855-d304-46f2-acb8-66d10bf5601f" />
+<img width="10000000000000" height="10000" alt="tumblr_5f940666f3f11e67ba5d2be97e22548a_aec8b43" src="https://github.com/user-attachments/assets/9a1617d1-6856-4e76-950e-e61250b07570" />
 
 
 hi there, im ten, u can also call me dess or brandon i dont really care. im open for nicknames though! im a minor
@@ -77,8 +77,4 @@ animatic battle / burger brawl (i dont support gery or anyone else that was call
 
 a WHOLE much more i dont feel like listing at all lawl! ok bye bruh
  <img width="1000000" height="140" alt="Untitled1327-20230807102107" src="https://github.com/user-attachments/assets/e9d5a6b8-f65d-45c7-aa3c-523b8a615e7e" />
-
-
-<img width="10000000" height="300" alt="tumblr_f9cd51a56aa3dda13d02210b42922ae9_f96fb564_1280" src="https://github.com/user-attachments/assets/70d44238-add9-49e3-b374-6f322f383a34" />
-
 
