@@ -1,7 +1,6 @@
 ![Gti66Z-boAAeGCL](https://github.com/user-attachments/assets/68617ca1-d2c4-445e-8ec2-451887812490)
 
 
-
 hi there, im ten, u can also call me dess or brandon i dont really care. im open for nicknames though! im a minor
 
 i use she/her always, if you want u can use he/it on me too (ask me before you do)
