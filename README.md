@@ -31,11 +31,3 @@ i dont mind boops or kisses, i like affection.
 i move around alot, either cause i talk in whispers or party chat with my trio.
 <img width="10000000" height="140" alt="Untitled1327-20230807102107" src="https://github.com/user-attachments/assets/860d5a2e-7a13-4dbb-90fb-299aac5079a7" />
 
-
-vocaloid 
-
-animatic battle / burger brawl (i dont support gery or anyone else that was called out in the series) / its time for the
-
-a WHOLE much more i dont feel like listing at all lawl! ok bye bruh
- <img width="1000000" height="140" alt="Untitled1327-20230807102107" src="https://github.com/user-attachments/assets/e9d5a6b8-f65d-45c7-aa3c-523b8a615e7e" />
-
