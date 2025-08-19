@@ -31,49 +31,6 @@ i dont mind boops or kisses, i like affection.
 i move around alot, either cause i talk in whispers or party chat with my trio.
 <img width="10000000" height="140" alt="Untitled1327-20230807102107" src="https://github.com/user-attachments/assets/860d5a2e-7a13-4dbb-90fb-299aac5079a7" />
 
-interests!
-
-the battle bricks
-
-forsaken
-
-die of death
-
-happy world with happy people
-
-roblox myths
-
-roblox args
-
-panty and stocking
-
-spookys jumpscare mansion 
-
-regretevator 
-
-pwned by 14:00
-
-mad rat dead (shut the hell up)
-
-deltarune
-
-undertale
-
-dream game/frozen soul
-
-hello john doe
-
-dave and bambi (A LITTLE TINY BIT.)
-
-pizza tower
-
-madoka magica
-
-phighting
-
-roblox hackers in general
-
-ddlc
 
 vocaloid 
 
