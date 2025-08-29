@@ -6,7 +6,7 @@
 
 
 
-hi there, im ten, u can also call me dess or brandon i dont really care. im open for nicknames though! im a minor
+hi there, im ten, u can also call me dess or brandon OOORRR hyphen i dont really care. im open for nicknames though! im a minor
 
 i use she/her always, if you want u can use he/it on me too (ask me before you do)
 
@@ -15,6 +15,8 @@ im polyam and pan I like kissing girls mostly ahahahah
 i am hypersexual. any jokes you see from me are half the time sexual. if you're uncomfortable with these jokes please tell me cause i cling on easily.
 
 i dont have limits to jokes either. so go wild. (dont pmo i get mad easily/hj)
+
+IM MEAN AS A JOKE. im nice when you first meet me until i get comfortable
 <img width="1000000" height="140" alt="Untitled1327-20230807102107" src="https://github.com/user-attachments/assets/1eef9d9e-f4e3-45c1-bf6b-cb29d45acfd3" />
 
 pony town stuff
