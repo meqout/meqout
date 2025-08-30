@@ -1,4 +1,5 @@
-![GyaqT-TXgAAdElX](https://github.com/user-attachments/assets/55741cfc-c0dc-4219-8e18-37e2ea95aa23)
+<img width="1280" height="720" alt="tumblr_08043c3eefbf64f6faf2922aafd05fa6_02b937e6_1280" src="https://github.com/user-attachments/assets/444ecb02-6d5f-4be1-a492-9f3844d7e570" />
+
 
 
 
