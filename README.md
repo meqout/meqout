@@ -18,3 +18,6 @@
 𐙚 minor
 </p>
 <p align="center">
+
+<img src="https://komarev.com/ghpvc/?username=meqout&color=ADD8E6&style=plastic&label=hearts">
+</p>
