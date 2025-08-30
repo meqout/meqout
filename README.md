@@ -21,3 +21,8 @@
 
 <img src="https://komarev.com/ghpvc/?username=meqout&color=ADD8E6&style=plastic&label=hearts">
 </p>
+
+<p align="center">
+<img <<img width="400" height="225" alt="tumblr_311e3e456f120c202a01ecd694995277_69653fa0_400" src="https://github.com/user-attachments/assets/0cba0746-6a7d-49e5-9952-a557fe227050" />
+"
+<p align="center">
