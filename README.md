@@ -1,4 +1,4 @@
-<img width="1280" height="720" alt="tumblr_08043c3eefbf64f6faf2922aafd05fa6_02b937e6_1280" src="https://github.com/user-attachments/assets/333505a8-627e-40fd-b254-f15002f349f1" />
+<img width="1043" height="1000" alt="tumblr_467aaace30b22afdf1329e430d333775_53add4d5_1280" src="https://github.com/user-attachments/assets/85944314-9ba5-469c-a06b-b1fe8a79249c" />
 
 ( layout by aubreelulz on tumblr )
 
