@@ -7,7 +7,7 @@
   <i>ten . brandon / dess / hyphen</i> !
 </p>
 <p align="center">
-𐙚  she / her pan poly
+𐙚  she / her pansxual
 </p>
 <p align="center">
 </p>
