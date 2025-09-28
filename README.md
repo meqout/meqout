@@ -4,7 +4,7 @@
 
 </p>
 <p align="center">
-  <i>deivy . brandon / dess / hyphen</i> !
+  <i>deivy . brandon / dess</i> 
 </p>
 <p align="center">
 𐙚  she / her pansxual
