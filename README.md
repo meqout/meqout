@@ -15,7 +15,7 @@
   <i>sign ata, read strawpage</i> !
 </p>
 <p align="center">
-𐙚 minor
+minor 𐙚
 </p>
 <p align="center">
 
